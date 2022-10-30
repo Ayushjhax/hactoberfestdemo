@@ -88,3 +88,6 @@ LinkedIn:https://www.linkedin.com/in/dipali-kamboj
 
 Umakshi 
 kaushikk.umakkshi@gmail.com
+Hi my name is ayush kumar jha i'm a young boy with a lotz of dream
+my email : ayushkmrjha@yahoo.com
+my linkedin : https://www.linkedin.com/in/ayush-kumar-jha-a82097253/
